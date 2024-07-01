@@ -5,7 +5,7 @@
 
 - Saya Masih mengerjakan project **Absensi berbasis Rasspberry**
 
-- Saya mempunyai tim design bernama **I'B Design**
+- Saya profesional poster design 
 
 - Berpengalaman Masuk Tim internasional **Fox Team**
 
